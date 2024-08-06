@@ -1,0 +1,2 @@
+# galaxyaiishereatmqlol
+bruh bruh bruh
